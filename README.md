@@ -1,2 +1,2 @@
 # test2
-#ousmane is a good person
+#ousmane and omar is a good person
